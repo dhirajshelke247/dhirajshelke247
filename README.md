@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dhirajshelke247
 - 👀 I’m interested Learning New Tech
-- Instagram : @dtox24_7
+- Instagram : @d.tox247
 - E- mail : 247dhiraj247@gmail.com
 
 <!---
